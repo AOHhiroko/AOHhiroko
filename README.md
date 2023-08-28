@@ -13,3 +13,7 @@ Some People do not believe there is GOD but I 'll tell you.
 
 In my READme, I wrote down what I think important and would like to transend to my dear ones.
 
+                                 *****
+
+    In every nation he that fears him and works rightouness is accepted with him.(acts 10:35)
+   
