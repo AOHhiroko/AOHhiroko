@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi there 👋A famous monk:s sermon: You do not have to ask * what is the meaning of my life?* What we have to think is
+:am I living facing stedily to my own everyday things？*　Last time　I wrote about practice of loving kindness.That is to grow loving  kindnesss in your heart. Today the word to grow mercy, I wish my distress and suffering would go away. I wish my relatives or friend*s troubles would go away. I wish every living things*s pain would go away. You say these prayers every
+day. You will read other two helping words in another day. The other day, loving kindness, and today, mercy. continues,  
+translated from japanese by me. 
 
 <!--
 **AOHhiroko/AOHhiroko** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
